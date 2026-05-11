@@ -15,7 +15,7 @@
 | **Ano letivo** | 2023 / 2024 |
 | **Docente** | Prof. Tiago Teixeira |
 | **Aluno** | Gonçalo Lopes Fernandes · Nº 2022148 |
-| **Nota Final** | ⏳ A aguardar — prevista para junho de 2026 |
+| **Nota Final** | 14 valores ✅  &&  14 valores ✅ 
 
 ---
 
